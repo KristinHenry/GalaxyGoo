@@ -1,3 +1,4 @@
 GalaxyGoo's Cell Project
 
-Photos: http://www.flickr.com/photos/galaxygoo/sets/72157594525935920/
+Project Page: http://www.galaxygoo.org/biochem/CellProject/cell_clay.html
+Photo Archives: http://www.flickr.com/photos/galaxygoo/sets/72157594525935920/
